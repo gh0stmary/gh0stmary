@@ -9,3 +9,5 @@ Meu nome é ☆༒★Mary★༒☆
 ### Vocẽ pode entrar em contato comigo 🐦
 
 @ghost_marykkkjk
+
+![](https://media.tenor.com/KYKnB3HPOasAAAAM/kuromi.gif)
